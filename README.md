@@ -1,6 +1,6 @@
 Well, boring Ukrainian boy. 
 Mostly working on "weekend" project.
-You can reach me on telegram (@blushyDan) or discord (blushyDan#7724)
+You can reach me on telegram (@blushyDan) and discord
 
 <!---
 blushydan/blushydan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
